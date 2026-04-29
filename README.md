@@ -51,6 +51,19 @@ que não entende, nois marcando um encontro musical, ai caralho ai agente foi es
 onde os manos morreram, um mais ali sumiu, e outro foi fuzilaod no vasco, dizem que foi papo de 2 pentes de fuzil, ai virou 
 peneira cara. Nessa época ja estavam ocorrendo revoluções caras, tipo tem uns 4 negocios do meio que surgiram cara.
 
+Ai eu era ameacado pelo boje, ai chegou a monica benicio e fez campanha pelo psol. ai veio uns otarios bichas do psol e de
+esquerda do ph, minha medica era do ph, ai fizeram varias campanhas na uerj, era todo dia essa da batata que seila o que,
+ai ela e maior otaria e marcelo freixo. ai puxa saco da policia civil, memso ai vem uns otarios da zona zul umas velhas 
+otarias tipo bruxa e cabelo cinza. ai umas porrada de mulher otaria, ai eu amko situação dessas velhas sozinhas e lixo
+humano. uma porrada de otaria de 60 anos agora.. ai uma porrada de otaria que tem nessas bostas. ai esse grupo de otario
+tipo devopsdays com globo ai maior otaria da zona sul uns lixos tipo jb que fazem mestrado ai puxam saco para conseguir
+mestrado e doutorado. ai maior otaria, ai o MARCELO FREIXO E MAIOR OTARIO E MODINHA QUE EXISTE, AI E VERDADE MESMO 
+A MONICA BENICIO E MARCELO FREIXO SAO MAIORES LIXOS HUMANOS, AI INVEZ DE AJDUASR SO PIORA A SITUACAO, AI VEIO UMA BICHA
+QUE DEVE SER ESSA CRIOLA QUE XUPA PAU DE VELHO, FEZ CAMPANHA AI PORRA UMA MULHER QUE XUPA PAU DE VELHO, AI E PSICOLOGICO
+E O BONDE DE PUTA, OLHA BEM E ASSIM VOCE FAZ ALGO QUANDO JOVEM E ISSO QUE VAISER, AS MULHERES NO GERAL NAO FAZEM NADA 
+AQUELAS QUE SEILA MEDICA, OU ENGENHERIA OU PROGRAMADORAS, NO FINAL ZERO DE REVOLCAO. E PIROCA E AMOR MAIS NADA OU
+MACUMBA OU RELIGICAO
+
 Ai eu briguei com o mano da garota, tipo eu era proximo dela da amiga dela, ai nosi caiu na porrada ele era play todo musculoso
 ai, ganheio  respeitoi, ai ele morreu cara. Ai tipo o mano civil ligou para minha casa, ai ela te ama cara. ai quer dar para voce
 cara. sabe agente tem contato com umas mulher meio europeia de sao paulo e meio estranho cara.  acho que curto mais uma francesa,
