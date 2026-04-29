@@ -81,3 +81,12 @@ DE LADO E SAI. AI APARECI PARA PEGAR UM NEGOCIO AI PEGA A PSICOLOGA AI ELE MORRE
 NAO PRECISAVA FALAR AI ME CONTOU CHORANDOCARA ELE MORREU CARA. aI DERAM UM TIRO AQUI ONDE EU MORO, TIPO EU MORO COLADO NO NEGOCIO
 DE AMBULANCIA CARA. AI TIPOS MAIS OS MANOS TAMBEM SAO SEGURANCAS E TIPO OU SAO SEILA ELES OU OS CARAS TIPO MORAM DO LADO DESSA
 MERDA.
+
+Ai eu comecei frequentar gloria a feira. e tomar caldo de cana. ai tamiris tambem, ai fui modificado para terca-feira pela psicologa
+para feira que tem proximo. ai tipo eu comecei frequentar quase depoistodos os dias da semana. Voces eu nao sei se sabem quando
+uma pessoa tem AVC entra para o resto da vida como o caso mais grave de saude, eu tipo furo fila direto nos hospitais, pois a
+saude vira uma merda. talvez nos banco nao mais, mais tipo eu fiquei doente varias vezes e nunca pequei qualquer gripe assim
+mais pesada em 15 anos e tals. pequei infeccao porrada de outras coisas. ai os idiotas bolsonaristas do hospital ai eu estou na
+feira. ai uma secretaria botou um bicho tipo um papagaio, e tipo ela e de sao cristovao onde meu amigo mora ele botou papagaio
+no zap dele ela botou na secretaria tambem e ficava joigando indireta direto, ai veio uma usuario de drogas do exercito tipo
+acho que era do grupo dos black seila o que. olha bem um otario do exercito tipo usuario de droga. olha bem agora o 8 de janeiro.
