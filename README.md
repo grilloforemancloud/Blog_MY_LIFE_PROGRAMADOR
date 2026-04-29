@@ -109,3 +109,10 @@ são cachaceiros, ai adoram crackudinha, ai e chato cara pois os malucos andavam
 que os traficantes devem saber, porque e meio crime e meio polica. ai muitoi estranho cara. ai os manos adoram uma cracudinha
 eu nao posso falar nada pois ja deu  merda os caras sao otariozao, ai vai que explodem o centro de gas do bairro, ai e foda
 cara, os malucos sao tudo meio torto.
+ Os malucos são tudo cachaceiro, meio lesado, bolsonarista, vcs nem sabe quem é, o problema de morar proximo de pobre e o re
+ lacionamento, eles sao fracos, cheios de problemas relacionais, bebidas, prostituição, ai eu costumava fazer uma comida com
+ alho, ai comprava no mercado todo dia, ai botaram alho na regiao toda na ruam e voces e o bihco, ai e politico, ai foram
+ na padaria da mae de alguem, ai comecaram vender alho, na casa do caro, botaram uma banquinha, ai veio os otarios dos
+ sistemas e ficam na porta da casa da pessoa, ai uns traficanetes da regiao, olha no local nao tem nem local para estacionar
+ carro e eles ficam para aqui, ai a regiao está cheia de merda, favelado, traficante, ai fizeram varios videos na feira de
+ são cristovão com ameacas de paraíbas de diretia na porta da casa da pessoa.
