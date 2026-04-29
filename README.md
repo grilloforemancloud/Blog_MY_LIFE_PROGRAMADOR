@@ -12,3 +12,9 @@ eu não deveria falar, mais sabe eu fiz algo e faço o resto que seila e assim e
 Ai vinha uma porrada de otario que ficavam almocando aqui, e usaram para influenciar os ooutros e continuoi aqui. ai fica o meu
 foda-se para os policiais civis o bope e a puta que pariu toda, ai se continuar vou na policia federaal e voces vao se fuder 
 otarios, de direita e evangelicos que se foda, ai se entrar o felipe curi tu vai rodar otario.
+
+
+Ai sobre as revolucoes, ai rede globo fez um globo reporter de um maconheiro e falou que era um grande homem, o maluco o dia
+todo na maconha, depois fez novela aqui na subida, depois de criola vascaina, depois eu pegava o transporte ai vinha umas
+vadias o incrivel que eram evangelicas, ai vadia evangleicva cara daqueles locais da puta que pariu tipo 298, 624, ai aqui
+passa um caralho de lixo todo dia de imbecil e filosofia do EXTERMINADOR DO FUTURO.
