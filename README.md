@@ -95,3 +95,7 @@ eu sei que os brancos sao maioria, mais quando comeca evento bolsonarista e dire
 na rua todos os carros sao brancos. nao ele esta sendo perseguido. olha bem shopping tijuca pegou fogo. no cefet que meus amigos
 e eu esetudei ocorreu assassinato. diversos locais perto da minha casa pegaram fogo. tipo uns otarios costureiros ai pegou fogo
 em outro local de costureiro grande.
+
+Ai tem um criolo otario que gosta de aparecer uns desses bem grandes que ate os manos vermelhos gostam de falar grande, ai maior
+otario igual eduardo paes, ai ficava joigando indireta levou familia para gloria. amior lixo e lixo otario criologo um desses
+que gostam de aparecer estao do lado da ana maria branga. amior grupo de otario maior lixo humano. criolo favelado de emrda.
