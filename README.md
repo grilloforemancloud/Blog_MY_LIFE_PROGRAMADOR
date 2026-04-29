@@ -67,4 +67,8 @@ MACUMBA OU RELIGICAO
 Ai eu briguei com o mano da garota, tipo eu era proximo dela da amiga dela, ai nosi caiu na porrada ele era play todo musculoso
 ai, ganheio  respeitoi, ai ele morreu cara. Ai tipo o mano civil ligou para minha casa, ai ela te ama cara. ai quer dar para voce
 cara. sabe agente tem contato com umas mulher meio europeia de sao paulo e meio estranho cara.  acho que curto mais uma francesa,
-e tipo filosofa bem...
+e tipo filosofa bem... AI EU FAZIA TERAPIA SEILA O QUE, AI UMA VEZ EU CONTEI SEILA EU GOSTAVA DA KELYY E SEILA NAO APROVEITEI, 
+CONHECI A TAMIRIS E TAL E NOIS SEIAL ELA ENGRAVIDOU NA EPOCA DO NAMORADAO, E TIPO NOIS TENTOU MAIS ELA JA ESTAVA GRAVIDA. AI
+APARECEU UMA MEDICA COM NOME DELA CARA. AI ELA FEZ UM BLOG QUE CONTAVA COMO ERA VIDA DELA NO HOSPITAL, E MEIO ESTAVA CONTANDO
+VIDA DOS PACIENTES, AI EU CONTEI PARA PSICOLOGA AI O BLOG SUMIU, CARA. AI OS MANOS DA ZONA ZUL CHEGOU POIS ELA ERA MATEMATICA
+GANHOU VARIOS PREMIOS. E OS MANOS TIPO ELA E FODONA, AI TODO LOCAL QUE EU VOU TEM ESSES OTARIOS.
