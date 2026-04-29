@@ -99,3 +99,13 @@ em outro local de costureiro grande.
 Ai tem um criolo otario que gosta de aparecer uns desses bem grandes que ate os manos vermelhos gostam de falar grande, ai maior
 otario igual eduardo paes, ai ficava joigando indireta levou familia para gloria. amior lixo e lixo otario criologo um desses
 que gostam de aparecer estao do lado da ana maria branga. amior grupo de otario maior lixo humano. criolo favelado de emrda.
+
+
+# VASCO DA GAMA
+Ai os negocios dos maconheiros do vasco fumando baseado todo dia na frente da rua, ai a policia botou o negocio proximok do
+centro de venda butijao da regiao, ai os manos acham que fui eu que botei, so que o primo dele morava do lado, ai depois
+os manos alugaram o apartamento do meu primo. Ai os manos do gás de forma muito estranha varias paradas, olha os malucos
+são cachaceiros, ai adoram crackudinha, ai e chato cara pois os malucos andavam com policia. ai a garota comecou a seila o
+que os traficantes devem saber, porque e meio crime e meio polica. ai muitoi estranho cara. ai os manos adoram uma cracudinha
+eu nao posso falar nada pois ja deu  merda os caras sao otariozao, ai vai que explodem o centro de gas do bairro, ai e foda
+cara, os malucos sao tudo meio torto.
