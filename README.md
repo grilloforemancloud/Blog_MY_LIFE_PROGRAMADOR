@@ -49,4 +49,4 @@ coisa, era birga de ideiologia, olha naquela epoca era briga ideologica os manos
 todo dia, ai eu tenho uma galera loira cara. ai ela sempre foi namoradeira, ai tipo perdeu 2 namorados caras. ai tem gente
 que não entende, nois marcando um encontro musical, ai caralho ai agente foi esculachado por vermes, ai no mesmo local
 onde os manos morreram, um mais ali sumiu, e outro foi fuzilaod no vasco, dizem que foi papo de 2 pentes de fuzil, ai virou 
-peneira cara.
+peneira cara. Nessa época ja estavam ocorrendo revoluções caras, tipo tem uns 4 negocios do meio que surgiram cara.
