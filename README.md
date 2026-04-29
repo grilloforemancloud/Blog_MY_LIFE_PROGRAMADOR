@@ -115,4 +115,15 @@ cara, os malucos sao tudo meio torto.
  na padaria da mae de alguem, ai comecaram vender alho, na casa do caro, botaram uma banquinha, ai veio os otarios dos
  sistemas e ficam na porta da casa da pessoa, ai uns traficanetes da regiao, olha no local nao tem nem local para estacionar
  carro e eles ficam para aqui, ai a regiao está cheia de merda, favelado, traficante, ai fizeram varios videos na feira de
- são cristovão com ameacas de paraíbas de diretia na porta da casa da pessoa.
+ são cristovão com ameacas de paraíbas de diretia na porta da casa da pessoa. Ai eu me mudei eu me mudei. os maconheiros
+ da rede globo quando eu saia comecaram andar no tráfico de drogas de outro local, tipo e proximo mais o ponto de maconha
+ tem proximo deles. ai o legal mesmo caras da cracudinha ai tipo tem menos que minha idade, e ela comecou bem cedo esses
+ negocios, aitipo tinha uma gorda meio seila tatuada, ela comecou andar. ali tipo ai caralho bem traficante, mais tipo
+ na porta dos globais, ai mais o manos cachaceiros tipo ja tomam cachaca e sao fracassados faz mais de 30 40 50 anos
+ no mesmo ponto que a cracudinha anda, ai veio os manos do vasco o manos seguranca do vasco tipo tem 180 kg bem assim
+ meio mongol, ai jessica comko vai, ai jessica, ai os caras ensibaran os outros a ficar todos os dias no bar com seila
+ cara, nao vou falar  mais deu para entender, tipo isso e cultura cara... entende,, ai tipo os manos tipo foi seguranca,
+ os outros levou pe no super mercado, ai os manos fizeram uma parada tipo tiveram seila com um outro manos que é fuzileiro
+ naval afastado, ai os otarios do supermercado ficaram ali, como o cara nao entendesse que esta sendo zoado, o cara e 
+ fuzileiro naval e tem uma 9mm no negocio, ai os otarios do vasco ficam ali zoando o cara que é fuzileiro naval olha os 
+ otarios e lixos.
