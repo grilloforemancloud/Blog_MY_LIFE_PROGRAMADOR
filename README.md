@@ -90,3 +90,8 @@ mais pesada em 15 anos e tals. pequei infeccao porrada de outras coisas. ai os i
 feira. ai uma secretaria botou um bicho tipo um papagaio, e tipo ela e de sao cristovao onde meu amigo mora ele botou papagaio
 no zap dele ela botou na secretaria tambem e ficava joigando indireta direto, ai veio uma usuario de drogas do exercito tipo
 acho que era do grupo dos black seila o que. olha bem um otario do exercito tipo usuario de droga. olha bem agora o 8 de janeiro.
+Tipo as scretaris tipo bolsonaristas comecaram andar onde agente andava e tipo acho que tinahs.AGora tem onda de carro branco, olha
+eu sei que os brancos sao maioria, mais quando comeca evento bolsonarista e direto alguma emrda de sacanagem. ait itpo voce olha
+na rua todos os carros sao brancos. nao ele esta sendo perseguido. olha bem shopping tijuca pegou fogo. no cefet que meus amigos
+e eu esetudei ocorreu assassinato. diversos locais perto da minha casa pegaram fogo. tipo uns otarios costureiros ai pegou fogo
+em outro local de costureiro grande.
