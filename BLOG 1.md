@@ -52,7 +52,7 @@ codigos doidos que identificam, assim que um nmap identifica um apache de nginx,
 probes, vou dar um exemplo
 ```Probe TCP GetRequest q|GET / HTTP/1.0\r\n\r\n|
   match http m|^HTTP/1\.[01] \d\d\d| p/Apache httpd/ v/2\.4\.41/ i/Ubuntu/
- 
+ ```
 ```Probe TCP GetRequest q|GET / HTTP/1.0\r\n\r\n|
   match http m|^HTTP/1\.[01] \d\d\d| p/nginx/ v/1\.18\.0/
-
+```
