@@ -33,3 +33,27 @@ um engenheiro tem processos de desenvolvimento de software, eu fiz ADS e tem pou
 o modelo cascata, incremental, modelo agil e scrum tdd, esses dois ultimos mudaram o 
 mundo. Essas coisas de agil são usadas em tudo, na enegenharia tradicional, em obras,
 e você automatizar e resolver o dia dia de forma adequada.
+
+O tio bob, que eu quero fazer uma homenagem, ele realmente mostrou vários aspectos da
+vida de um programador, ele fez o solid, ele conheceu o cara do TDD, cara quando tem
+alguém assim, voce tem que encontrar o cara, assim que vivem essas pessoas, tudo não
+é big techs, olha tem gente normal fazendo construindo, e assim INTERNET, E ASSIM
+TUDO NA VIDA.
+
+## PENSAMENTO 2
+
+Eu vou dar o exemplo da INTERNET CRIADA POR TIM BANNERS LE, OLHA PENSA COMO ESSAS COISAS
+FUNCIONAM, olha pensa no todo, antigamente os browser eram somente html sem multimédia,
+hoje voce joga, tem várias tecnologias, eu vou mostrar, pensa eu criei um programa que
+acessa pelo terminal e toca música que toca nos browsers. sem criar um servidor de música,
+eu uso http do curl que está presente em diversos sites, tudo pelo terminal, voce tocar
+na parte de como ele identificam um server de web de outra?? todos tem um cabecalho uns
+codigos doidos que identificam, assim que um nmap identifica um apache de nginx, olha os
+probes, vou dar um exemplo
+''' 
+Probe TCP GetRequest q|GET / HTTP/1.0\r\n\r\n|
+match http m|^HTTP/1\.[01] \d\d\d| p/Apache httpd/ v/2\.4\.41/ i/Ubuntu/
+''' 
+Probe TCP GetRequest q|GET / HTTP/1.0\r\n\r\n|
+match http m|^HTTP/1\.[01] \d\d\d| p/nginx/ v/1\.18\.0/
+'''
