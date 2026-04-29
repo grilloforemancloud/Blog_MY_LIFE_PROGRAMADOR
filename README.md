@@ -22,3 +22,13 @@ passa um caralho de lixo todo dia de imbecil e filosofia do EXTERMINADOR DO FUTU
 o SIMBOLO DE JUSTICA E MUITO ALTO, QUE ELES TEM MILICIA, AI ENTROU O SIMBOLO DA VADIA DE SEILA O QUE, AI DE VERDADE, TEM
 PIRANHA E NAO PIRANHA EVANGELICA, ELAS ADORAM HOMEM DA MOTINHA QUE PAGA DINHEIRO. oLHA COMO ACONETECE VEM UMA VADIA CHEIA
 DE TATUAGEM VERDE UMA CARALHADA DE TRAFICAENTE EVANGELICO. AI VEM TIA AMIGA DOS TRAFICANTES E PASSAM MAO NA CABECA DO CRIMINOSO.
+
+o RONNIE LESSA EU NAO CONEHCO E FOI DO 9 MINHA FAMILIA E 9 MAIS JA ESTA APOSENTADO FAZ UM BOM TEMPO, AI VC SABE COMO É A SOCIEDADE
+CARA?? DE verdade os caras geralmente são iguais, quase tudo??? o policial aqui no geral pode ser da favela cara. iugal os manos
+do negocio do bicho que seila sabe!!! o pm as vezes e tenta falar que e diferente e sim, mais e iugal todos da comunidade cara.
+O que diferencia e o cara ser de esquerda.. ai nesses locais nao tem arte, voce nao tem opcao de coisas. ai sabe os caras ricos
+fazem tudo o que voce pode fazer e sçao píores no geral. Igual voce querer ser judoca ou jiu-jitsu e ter mais opcoes, voce pode
+ter, mas tem que lutar mais, nao errarr, nao desistir. O pior mesmo e quando descobrir que talvez tenha que sair cara, no geral
+e assim mesmo cara. MAIS POR QUE SAIR, CARA VOCE E PROGRAMADOR, SIM!!! VOCE NAO TEM LIBERDADE, A FILOSOFIA E DO OTARIO CARA, VC
+TEM UMA FORMA DIFERENTE DE SER, OS CARAS NÇAO ACEITAM, E VOCE NAO FAZENDO NADA DE ERRADO, AI ENTRA O PADRAO EVANGELICO. QUE VAI
+GANHAR SER ACEITO. E NAO MAIS UMA PESSOA NORMAL.
