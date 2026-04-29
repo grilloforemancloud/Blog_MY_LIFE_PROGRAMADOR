@@ -50,3 +50,8 @@ todo dia, ai eu tenho uma galera loira cara. ai ela sempre foi namoradeira, ai t
 que não entende, nois marcando um encontro musical, ai caralho ai agente foi esculachado por vermes, ai no mesmo local
 onde os manos morreram, um mais ali sumiu, e outro foi fuzilaod no vasco, dizem que foi papo de 2 pentes de fuzil, ai virou 
 peneira cara. Nessa época ja estavam ocorrendo revoluções caras, tipo tem uns 4 negocios do meio que surgiram cara.
+
+Ai eu briguei com o mano da garota, tipo eu era proximo dela da amiga dela, ai nosi caiu na porrada ele era play todo musculoso
+ai, ganheio  respeitoi, ai ele morreu cara. Ai tipo o mano civil ligou para minha casa, ai ela te ama cara. ai quer dar para voce
+cara. sabe agente tem contato com umas mulher meio europeia de sao paulo e meio estranho cara.  acho que curto mais uma francesa,
+e tipo filosofa bem...
