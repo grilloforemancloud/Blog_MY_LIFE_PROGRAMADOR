@@ -18,3 +18,6 @@ Ai sobre as revolucoes, ai rede globo fez um globo reporter de um maconheiro e f
 todo na maconha, depois fez novela aqui na subida, depois de criola vascaina, depois eu pegava o transporte ai vinha umas
 vadias o incrivel que eram evangelicas, ai vadia evangleicva cara daqueles locais da puta que pariu tipo 298, 624, ai aqui
 passa um caralho de lixo todo dia de imbecil e filosofia do EXTERMINADOR DO FUTURO.
+
+o SIMBOLO DE JUSTICA E MUITO ALTO, QUE ELES TEM MILICIA, AI ENTROU O SIMBOLO DA VADIA DE SEILA O QUE, AI DE VERDADE, TEM
+PIRANHA E NAO PIRANHA EVANGELICA, ELAS ADORAM HOMEM DA MOTINHA QUE PAGA DINHEIRO.
