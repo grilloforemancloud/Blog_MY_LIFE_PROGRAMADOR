@@ -50,10 +50,9 @@ eu uso http do curl que está presente em diversos sites, tudo pelo terminal, vo
 na parte de como ele identificam um server de web de outra?? todos tem um cabecalho uns
 codigos doidos que identificam, assim que um nmap identifica um apache de nginx, olha os
 probes, vou dar um exemplo
-''' 
-Probe TCP GetRequest q|GET / HTTP/1.0\r\n\r\n|
-match http m|^HTTP/1\.[01] \d\d\d| p/Apache httpd/ v/2\.4\.41/ i/Ubuntu/
-''' 
-Probe TCP GetRequest q|GET / HTTP/1.0\r\n\r\n|
-match http m|^HTTP/1\.[01] \d\d\d| p/nginx/ v/1\.18\.0/
-'''
+```Probe TCP GetRequest q|GET / HTTP/1.0\r\n\r\n|
+  match http m|^HTTP/1\.[01] \d\d\d| p/Apache httpd/ v/2\.4\.41/ i/Ubuntu/
+ 
+```Probe TCP GetRequest q|GET / HTTP/1.0\r\n\r\n|
+  match http m|^HTTP/1\.[01] \d\d\d| p/nginx/ v/1\.18\.0/
+
