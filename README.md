@@ -32,3 +32,17 @@ ter, mas tem que lutar mais, nao errarr, nao desistir. O pior mesmo e quando des
 e assim mesmo cara. MAIS POR QUE SAIR, CARA VOCE E PROGRAMADOR, SIM!!! VOCE NAO TEM LIBERDADE, A FILOSOFIA E DO OTARIO CARA, VC
 TEM UMA FORMA DIFERENTE DE SER, OS CARAS NÇAO ACEITAM, E VOCE NAO FAZENDO NADA DE ERRADO, AI ENTRA O PADRAO EVANGELICO. QUE VAI
 GANHAR SER ACEITO. E NAO MAIS UMA PESSOA NORMAL.
+
+o MALUCO E DA AQUI, SIM, MAIS NAO E JACARE CARA.. E OUTRA ÁREA. EU VE O OTARIA TENTANDO DESCOBRIR ONDE MINHA FAMILIA MORA, E NO 
+FINAL UMA PUTA DE VADIA CARA. EU NAO VOU MUDAR. SABE VOCE TEM 18 ANOS E CASA COM VELHO DE 70 ANOS CARAS. PENSA E UMA ESCOLHA DE
+SOBREVIVER CARA. E O QUE EU VEJO CARA.  CASOU COM UM GENERAL??? PENSA NAO É? MINHA FAMILAI ERA MESMO CARA. E TRABALHOU, ESTUDOU,
+LUTOU E CHEGOU NO CARGO MAIS ALTO QUE ELA PODERIA ESTAR NA ÉPOCA DELA.
+
+
+oLHA Os manos tem mania de mostrar ser macho, olha bem eu com 105 kilos atualmente, pensa be!! o mano do bope ficou tipo otario,
+eu olhei ele mostrou o simbolo do bope. e tals eu olhei para ver se nao estva com arma. ai de verdade!! vc sabe que sou muito
+buror ou inteligente. ai eu pensei caralho acho que deveria meter a porrada no otario, ele sair todo quebrado, chegar igual
+viadinho no bope... ai pensa, depois apareceu o retardado do curi, ai eu nao conhecia na epoca, mais reconheci pela rouba, e 
+sabe meus amgiso uns sao da policia e advogados aqui da rua. na éoca nosi ja era bem avancado, essas coisas de nazimos, rhcp,
+punk musica, agente sai na porrada na rua todo dia por questoes politicas e conviccoes, nao era briga por mulher ou qualquer
+coisa, era birga de ideiologia.
