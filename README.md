@@ -45,4 +45,8 @@ buror ou inteligente. ai eu pensei caralho acho que deveria meter a porrada no o
 viadinho no bope... ai pensa, depois apareceu o retardado do curi, ai eu nao conhecia na epoca, mais reconheci pela rouba, e 
 sabe meus amgiso uns sao da policia e advogados aqui da rua. na éoca nosi ja era bem avancado, essas coisas de nazimos, rhcp,
 punk musica, agente sai na porrada na rua todo dia por questoes politicas e conviccoes, nao era briga por mulher ou qualquer
-coisa, era birga de ideiologia.
+coisa, era birga de ideiologia, olha naquela epoca era briga ideologica os manos tipo oasis, os manos rhcp, nazismo cara, pixe
+todo dia, ai eu tenho uma galera loira cara. ai ela sempre foi namoradeira, ai tipo perdeu 2 namorados caras. ai tem gente
+que não entende, nois marcando um encontro musical, ai caralho ai agente foi esculachado por vermes, ai no mesmo local
+onde os manos morreram, um mais ali sumiu, e outro foi fuzilaod no vasco, dizem que foi papo de 2 pentes de fuzil, ai virou 
+peneira cara.
