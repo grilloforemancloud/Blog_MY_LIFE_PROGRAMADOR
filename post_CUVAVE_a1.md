@@ -27,7 +27,7 @@ D|--4--6-----4----|
 A|----------------|
 E|----------------|
    F# A#  C#  A
-
+```
 
 bm g f# tudo 4 notas seminima
 Entendi: você quer uma linha simples, 4 notas em semínimas para cada acorde da progressão Bm – G – F#.
@@ -41,14 +41,14 @@ F#:  F# – A# – C# – F#
 
 
 B Eólio – 3 notas por corda
-
+```
 e|-------------------------7-9-10-|
 B|-------------------7-8-10-------|
 G|-------------7-9-11-------------|
 D|-------7-9-11-------------------|
 A|--7-9-10------------------------|
 E|7-9-10--------------------------|
-
+```
 
 Como usar sobre a progressão Bm – G – F#
 Bm: enfatize as notas B, D, F# dentro do shape.
