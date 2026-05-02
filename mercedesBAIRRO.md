@@ -5,3 +5,9 @@ caso dos brigadeiros da mulher que matou algumas pessoas, essa própria mulher o
 até para minha pessoa e colocou alguns posters de macumbeira ou seila desses ko, e 
 facil perceber o padrao dos otários camisa verde, tem vários otários que sairam nos
 casos policiais com camisa verde.
+
+O padrão hoje e carro branco, antes era camisa verde, depois o padrão das mulheres
+vadias evangélicas, eu nao queria contar mais eu cheguei ter em maos o padrão da
+direita de carros koreanos da embaixada americana, nada muito diferente talvez
+seja da policia, e o jogo dos imbecis, o sistema de imbecil. O legal que o EUA
+morreu será que não foi os imbecis de direita.
