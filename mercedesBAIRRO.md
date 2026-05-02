@@ -17,3 +17,10 @@ assistem o show da vadia da shakira, ou coldpaly, ou qualquer coisa, eles vem
 da puta que pariu, de todos os locais, e não entendem que esses malucos não gostam
 de vocês e depois não tem nada haver shakira, ou seila o que.. fica o meu foda-se
 os caras que não entendem os lixos que são.
+
+Eu já descobri outro padrão dos imbecis segurança, antes eles ficavam por causa
+de ufc sabe. Viraram os homens super poderosos do bairro, mais sabe uns lixos
+de merda. Nada diferente de algumas vadias quando chegou o peixe, comecaram
+andar onde eu ando que é bem logne, e ofeceram suas vadias e boiolagens
+se conseguem algum merda famsoso e assim que funciona putaria nordestinos
+que não estudam e sexo com direitistas ou ate politicos.
