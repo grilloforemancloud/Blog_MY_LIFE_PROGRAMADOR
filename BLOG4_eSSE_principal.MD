@@ -23,5 +23,10 @@ mais o rock cara, muito do que toca tenho impressão que parece ser, MUSE, BLUR,
 não é tudo mais tem muita coisa que lembra, até na forma dos artistas. Voltando ao começo, o tempó,
 olha que pulei no contexto, o tempo quanto tempo demoro para criar um designer, olha eu tenho
 impressão que caso queira terminar de vez, eu tenha como terminar, não que seja ou vá ocorrer em 100%,
-mais qual o motivo de falar isso, talvez é importante vocês entenderem que algo diferente e simples
+mais qual o motivo de falar isso, talvez é importante vocês entenderem que algo diferente é simples
 criar.
+
+A cidade como cada pessoa absorve é diferente, você por você mesmo talvez já saiba, caso não, o que
+estou falando a forma que você olha e vive muda ao longo do tempo, alguns que nunca passaram por isso,
+então não sei o que falar, porém, aquela do futuro bem blade runner, olha estamos diante de várias 
+mudanças, IA, computer quanticos, o que falta???
