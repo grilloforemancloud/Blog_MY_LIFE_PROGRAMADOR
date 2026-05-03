@@ -49,6 +49,11 @@ diversos shows de samba e casas de samba que acabaram de abrir, outras já exist
 o movimento que representa esses negociox z\\\\zzzzzz, o que acontece são dos caras. Olha eu não prestei
 depoimento, eu somente falei que o bicho cara...
 
+EU somente falei que era bicho por causa de ser um hacker, ganhei de certa forma.
+
+
+AQUI IA FALOU.... não sou eu... de baixo...
+
 
 ### O que foi revelado nas investigações
 Delação de Élcio Vieira de Queiroz (ex-PM):
