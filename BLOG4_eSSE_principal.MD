@@ -94,3 +94,5 @@ mataram  o americano.
 
 Ai depois das bichas psicologicas vem os otarios da direita ai nao adianta falar qualquer coisa que os malucos esta tentando liberar caras dos manos dos BOLSONARISTAS, AI QUALQUER COISA FICA UMA PORRADA DE
 OTARIO ACHANDO E NÃO DEU PORRA NENHUMA OTARIO. AI O MALUCO AINDA TOMOU NO RABO POR ATRAPALHAR FICA DICA BOLSONARISTAS.
+
+aI DEPOIS TEM BOCA DE URNA TEM O CARALHO DOS OTARIOS TENTANDO SE ELEGER E NÃO FIZERASM PORRA NENHUMA SOMENTE CRIANDO MENTIRA.
