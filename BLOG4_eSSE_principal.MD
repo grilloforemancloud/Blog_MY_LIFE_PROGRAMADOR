@@ -88,3 +88,6 @@ ai essas coisas acontecem direto. Depois do brigadeiro matador, tinha o paraplé
 
 Olha que continua tem um grupo de imbecis., depois ocorreu no mesmo shopping que pegou fogo o super no local que morreu o americano. Depois comecou o show de bichas loucas, caralho os malucos
 são imbecis caras. TIPO casal de imbecis que acham que conseguem destruir os outros.
+
+Ai depois veio os evangelicos dos eua, depois veio a campanha de moradores de rua na embaixada americana dos caras que não são moradores de rua. AI uma porrada de otario de merda. Na mesma época quase
+mataram  o americano.
