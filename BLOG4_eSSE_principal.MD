@@ -47,7 +47,8 @@ Eu vou contar outra vez, em 2018 eu já comecei e fiz o que tinha que fazer, tud
 que é evidente que o sistema fica na porta da coisa da corregedoria e ficou cada vez mais presente, com
 diversos shows de samba e casas de samba que acabaram de abrir, outras já existiam, o chato que até o certo
 o movimento que representa esses negociox z\\\\zzzzzz, o que acontece são dos caras. Olha eu não prestei
-depoimento, eu somente falei que o bicho cara...
+depoimento, eu somente falei que o bicho cara... OLHA AI ELES COLOCARAM E AQUI, O CASO, BOTARAM UMA PORRADA
+DE COISA. NO LOCAL E AI., EU NAO FALOU NADA.. VIVA O ROCK...............
 
 EU somente falei que era bicho por causa de ser um hacker, ganhei de certa forma.
 
