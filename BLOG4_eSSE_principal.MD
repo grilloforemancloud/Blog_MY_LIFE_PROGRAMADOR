@@ -91,3 +91,6 @@ são imbecis caras. TIPO casal de imbecis que acham que conseguem destruir os ou
 
 Ai depois veio os evangelicos dos eua, depois veio a campanha de moradores de rua na embaixada americana dos caras que não são moradores de rua. AI uma porrada de otario de merda. Na mesma época quase
 mataram  o americano.
+
+Ai depois das bichas psicologicas vem os otarios da direita ai nao adianta falar qualquer coisa que os malucos esta tentando liberar caras dos manos dos BOLSONARISTAS, AI QUALQUER COISA FICA UMA PORRADA DE
+OTARIO ACHANDO E NÃO DEU PORRA NENHUMA OTARIO. AI O MALUCO AINDA TOMOU NO RABO POR ATRAPALHAR FICA DICA BOLSONARISTAS.
