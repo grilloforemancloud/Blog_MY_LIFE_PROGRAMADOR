@@ -30,3 +30,15 @@ A cidade como cada pessoa absorve é diferente, você por você mesmo talvez já
 estou falando a forma que você olha e vive muda ao longo do tempo, alguns que nunca passaram por isso,
 então não sei o que falar, porém, aquela do futuro bem blade runner, olha estamos diante de várias 
 mudanças, IA, computer quanticos, o que falta???
+
+
+# Depois do encerramento
+O momento eu me vejo como um dos maiores hackers filosóficos de todos os tempos, sem provas algumas,
+não faltou coragem e diatne da própria policia corrupta eu falei jogo do bicho, aqueles que não 
+acreditam eu tinha meu canal e diversos anos fiquei falando jogo do bicho, nenhum outro ou outra pessoa
+eu vê além da minha própira pessoa falar BICHO, OS DELEGADOS FORAM PRESOS, EM ABRIL DE 2019 EU JÁ
+POSTEI FOTO DO MEIER DIANTE DOS BOMBEIROS,  e foram pegos os bombeiros, ali estava seila quem, olha
+para quem não viu, a questão eu não quiz ficar maior, mais minha foto diante dos corruptos do sistema
+na corregedoria da coisa. O que eu descobre que a cidade grande maioria são imbecis e lixo, eles querem
+ou ficar bonitos, ou os mais, não quem fez, um lado são imbecis de direita, no outro são imbecis de alguma
+forma que representam em todas as suas situações o sistema.
