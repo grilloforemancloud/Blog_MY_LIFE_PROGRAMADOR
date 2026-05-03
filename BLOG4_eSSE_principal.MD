@@ -42,3 +42,35 @@ para quem não viu, a questão eu não quiz ficar maior, mais minha foto diante 
 na corregedoria da coisa. O que eu descobre que a cidade grande maioria são imbecis e lixo, eles querem
 ou ficar bonitos, ou os mais, não quem fez, um lado são imbecis de direita, no outro são imbecis de alguma
 forma que representam em todas as suas situações o sistema.
+
+Eu vou contar outra vez, em 2018 eu já comecei e fiz o que tinha que fazer, tudo comecou bem atrás, o chato
+que é evidente que o sistema fica na porta da coisa da corregedoria e ficou cada vez mais presente, com
+diversos shows de samba e casas de samba que acabaram de abrir, outras já existiam, o chato que até o certo
+o movimento que representa esses negociox z\\\\zzzzzz, o que acontece são dos caras. Olha eu não prestei
+depoimento, eu somente falei que o bicho cara...
+
+
+### O que foi revelado nas investigações
+Delação de Élcio Vieira de Queiroz (ex-PM):
+Apontou que o grupo de Bernardo Bello teve participação logística no atentado.
+Disse que Bello teria fornecido um celular para Ronnie Lessa, o atirador.
+O carro Chevrolet Cobalt usado no crime foi entregue por José Carlos Roque Barboza, chefe da segurança de Bello.
+
+### Função dos seguranças:
+
+Eles atuavam como intermediários, providenciando veículos, armas e logística.
+Isso permitia que os mandantes se mantivessem afastados da cena do crime, dificultando a responsabilização direta.
+Relação entre Bello e o Caso Marielle
+Bello não aparece como executor, mas seu grupo foi citado como parte da rede que deu suporte ao atentado.
+O envolvimento do segurança José Carlos Roque Barboza é a ponte que conecta Bello ao caso.
+Esse padrão é comum no jogo do bicho e nas milícias: os líderes raramente participam diretamente, mas seus seguranças e operadores fornecem os meios para o crime.
+### Implicações
+Investigação ampliada: A delação levou a Polícia Federal a investigar se Bello tinha papel de financiador ou articulador indireto.
+
+Complexidade do caso: Mostra como o assassinato de Marielle envolveu não apenas milicianos, mas também redes ligadas ao jogo do bicho.
+
+Proteção dos mandantes: O uso de seguranças e carros fornecidos por terceiros reforça a estratégia de manter distância entre os chefes e a execução.
+
+✅ Em resumo: O segurança de Bernardo Bello, José Carlos Roque Barboza, foi apontado como responsável por fornecer o carro usado no atentado contra Marielle. Isso não coloca Bello diretamente na cena, mas vincula seu grupo à logística do crime.
+
+Quer que eu monte um mapa das conexões entre milicianos, bicheiros e políticos citados no caso Marielle, para visualizar melhor como essas redes se entrelaçam?
