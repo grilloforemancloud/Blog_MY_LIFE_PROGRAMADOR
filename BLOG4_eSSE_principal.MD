@@ -80,3 +80,11 @@ Proteção dos mandantes: O uso de seguranças e carros fornecidos por terceiros
 ✅ Em resumo: O segurança de Bernardo Bello, José Carlos Roque Barboza, foi apontado como responsável por fornecer o carro usado no atentado contra Marielle. Isso não coloca Bello diretamente na cena, mas vincula seu grupo à logística do crime.
 
 Quer que eu monte um mapa das conexões entre milicianos, bicheiros e políticos citados no caso Marielle, para visualizar melhor como essas redes se entrelaçam?
+
+
+## OLHA
+Faz uns 3 ou 4 anos eu estava de boas, e veio uma bicha assim bem coordenada, ai de shortinho anos 80 do metal, ai peito cabeludo, ai o maluco gritou aiai ai aiaiaia quebrou o local todo e saiu correndo,
+ai essas coisas acontecem direto. Depois do brigadeiro matador, tinha o paraplégico que ficava tocando violao, olha nao deu tempo, ai depois o brigadeiro matador foi para os shoppings da regiao.
+
+Olha que continua tem um grupo de imbecis., depois ocorreu no mesmo shopping que pegou fogo o super no local que morreu o americano. Depois comecou o show de bichas loucas, caralho os malucos
+são imbecis caras. TIPO casal de imbecis que acham que conseguem destruir os outros.
